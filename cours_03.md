@@ -18,4 +18,4 @@ Où vous voyez-vous dans 5 ans?
 Dans 5 ans, je pense que je serais à l'université. Je vais probablement continuer les études à l'université.
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire. 
-J'aimerais vraiment créer une application mobile qui aidera la population et j'aimerais faire des Animation 3D et aussi créer des sites pour des grandes entreprises.
+J'aimerais vraiment créer une application mobile qui aidera la population et j'aimerais faire des animation 3D et aussi créer des sites pour des grandes entreprises.
