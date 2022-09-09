@@ -12,7 +12,7 @@ Nommez deux emplois:
 Des emplois qui m'intéressent sont le métier de génie logiciel et le métier de design web.
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi: 
-J'adore les projets que daily tous les jours et Oasis immersion font. Je trouve que leurs projets sont très intéressants.
+J'adore les projets que Daily tous les jours et Oasis immersion font. Je trouve que leurs projets sont très intéressants.
 ### Dans 5 ans 
 Où vous voyez-vous dans 5 ans? 
 Dans 5 ans, je pense que je serais à l'université. Je vais probablement continuer les études à l'université.
