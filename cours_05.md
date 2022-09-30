@@ -12,4 +12,4 @@ Un point que j'aimerais améliorer c'est de parler plus fort. Je trouve que je n
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi? 
 
-La présentation que j'ai aimé est celui de Delphine. Je trouve que sa présentation était très intéressante et très complet. Elle a donnés plusieurs informations nécéssaires pour faire une belle et une présentation complète. J'ai aimé que elle avait présenté tous les projets quelle avait réalisés. De plus, elle avait respecté les consignes.
+La présentation que j'ai aimé est celui de Delphine. Je trouve que sa présentation était très intéressante et très complet. Elle a présenté plusieurs informations nécéssaires pour faire une belle et une présentation complète. J'ai aimé que elle avait présenté tous les projets quelle avait réalisés. De plus, elle avait respecté les consignes.
